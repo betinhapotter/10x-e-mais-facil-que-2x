@@ -1,0 +1,5 @@
+Dan Sullivan treinou mais empreendedores de alto nível do que qualquer pessoa viva — mais de 25 mil fundadores passaram pelo seu programa Strategic Coach desde 1989. Benjamin Hardy, doutor em psicologia organizacional, é quem traduz a prática de Sullivan em mecanismo psicológico. Este é o terceiro livro da dupla, depois de Who Not How e The Gap and The Gain.
+
+A tese central é contraintuitiva de propósito: metas 10x são mais fáceis que metas 2x. Não porque exigem menos trabalho — mas porque exigem menos coisas. Para dobrar, você pode manter tudo o que já faz e apertar o passo: mais horas, mais clientes, mais processos, mais força bruta no mesmo jogo. Existem infinitos caminhos para crescer 10% ou 100%, e é exatamente essa infinidade que dispersa. Para crescer dez vezes, quase nada do que você faz hoje serve. Sobram pouquíssimos caminhos — e essa escassez de opções é um filtro, não um problema.
+
+O 2x é linear: mais do mesmo. O 10x é exponencial e qualitativo: transformação de identidade, não otimização de rotina. É a diferença entre melhorar a carruagem e construir o carro.
